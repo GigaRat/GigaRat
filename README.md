@@ -1,4 +1,4 @@
-I am Jinx, alias' are GigaRat, Ghosstii
+I am Seb, alias' are GigaRat, Ghossti
 
 Currently working on a 24 total hour visual novel dating sim game with cooking mama elements. I am the game designer/developer
 and my team mate is the composer. 
